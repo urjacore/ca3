@@ -1,2 +1,2 @@
-Contact page: +91 87945 61232
+Contact page: /old-contact
 Opens at: 10:00
